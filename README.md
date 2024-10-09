@@ -4,5 +4,6 @@
 - 💞️ I’m looking to collaborate with other Nerds to help me and other guys! ;D Maybe in the future, we are working together? 
 - 📫 How to reach me/ kissamaukoirahau7@outlook.com
 - 😄 Pronouns: Peace & Love!
-- ⚡ Fun fact: Number 7, was followed whole life! Since I was born ;D 
-Hello World! 777 
+- ⚡ Fun fact: Number 7, was followed my whole life! Since I was born ;D 
+Hello World! 777
+I am a person, what is your excuse? 
