@@ -5,5 +5,5 @@
 - 📫 How to reach me/ kissamaukoirahau7@outlook.com
 - 😄 	Commendation: Have a nice day! U are amazing ;D Peace & Love! 
 - ⚡ Fun fact: Number 7, was followed my whole life! Since I was born ;D 
-Hello World! 777
-I am a person, what is your excuse? 
+Hello World!
+I am a person, what is your excuse?  777
